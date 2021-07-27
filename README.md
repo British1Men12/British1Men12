@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @British1Men12
+- 👀 I’m interested in coding programs
+- 🌱 I’m currently learning coding
+- 📫 if you want to contact me then here's my email:oom48046@gmail.com
